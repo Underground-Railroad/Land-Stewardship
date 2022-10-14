@@ -14,6 +14,20 @@ I am looking into connecting the following communities //
 - The mission Continues (Veteran Service Organization)
 - Duwamish Longhouse
 
+Learning about the Salmon Watersheds
+- Researching Organizational Topography 
+- Making Connections
+
+Learning about Washington states approach to solar energy 
+- Attended the 2022 Washington State Solar Summit [10.14.2022]
+    - Listened to Gov Inslee
+    - [Olympia Community Solar](https://olysol.org/our-team/) *"economic justice"*
+      - Rep // Mason Rolph
+      > serves as the President of Olympia Community Solar. Mason, a graduate of The Evergreen State College, has consulted on community solar policy for The Coalition For Community Solar Access and Common Energy; a community solar administrator in New York.
+      
+      > He was elected to the Washington Solar Energy Industry Association Board of Directors for 2022-2023. 
+    
+
 I am working on the following IRL projects:
 - [The Heron's Nest](https://www.theheronsnest.org/) - Learning
     - I will be under the guidance of Lee [Field Director], Joselynn [Volunteer], and Elders Pamela SeaMonster & Duck
