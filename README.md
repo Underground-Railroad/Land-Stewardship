@@ -12,7 +12,7 @@ What am I currently up to?
 
 I am looking into connecting the following communities // 
 - The mission Continues (Veteran Service Organization)
-- Duwamish Longhouse
+- Heron's Nest
 
 Learning about the Salmon Watersheds
 - Researching Organizational Topography 
@@ -35,7 +35,8 @@ I am working on the following IRL projects:
     - Learning about medicinal plants on the land
     - Tending what is present and welcoming what is to come.
 - [The Lookout Artists Quarry](https://lookoutarts.com/about/) - Learning / Teaching
-    - I will be under the mentorship of Future where I will shadow and support the projects operations, land stewardship and soiocracy practices.
+    - I will be under the mentorship of Future where I will shadow and support the land projects operations, land stewardship and contribute to soiocracy practices.
+    - I am currently up for vote to be on the Board for the 2023 season
 - [The Mission Continues](http://www.missioncontinues.org/service-platoon/Seattle/) - In service to community, volunteering since 2015
     - I have Led three service platoons with most of my time split between seattle 1st and 2nd platoon
 
