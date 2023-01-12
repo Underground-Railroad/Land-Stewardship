@@ -39,4 +39,7 @@ I am working on the following IRL projects:
     - I am currently up for vote to be on the Board for the 2023 season
 - [The Mission Continues](http://www.missioncontinues.org/service-platoon/Seattle/) - In service to community, volunteering since 2015
     - I have Led three service platoons with most of my time split between seattle 1st and 2nd platoon
+    
+    
+##  > Sponsor me on : [Patreon](https://www.patreon.com/AL0YSI0US/about) : 
 
