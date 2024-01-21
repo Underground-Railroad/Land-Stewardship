@@ -1,5 +1,5 @@
 # Land-Stewardship
-This repository will be used to catalog, journal, document and preserve my journey as I reclaim my birthright of land stewardship.
+This repository will be used to catalog, journal, document and preserve my journey as I weave threads to restore matrilineal governance in the PNW
 
 User Story:
 
@@ -13,12 +13,14 @@ What am I currently up to?
 I am looking into connecting the following communities // 
 - The mission Continues (Veteran Service Organization)
 - Heron's Nest
+- Shared Spaces Foundation
+- Sound Foundations NW
 
 Learning about the Salmon Watersheds
 - Researching Organizational Topography 
 - Making Connections
 
-Learning about Washington states approach to solar energy 
+Learning about Washington states public/private approach to solar energy 
 - Attended the 2022 Washington State Solar Summit [10.14.2022]
     - Listened to Gov Inslee
     - [Olympia Community Solar](https://olysol.org/our-team/) *"economic justice"*
@@ -28,18 +30,39 @@ Learning about Washington states approach to solar energy
       > He was elected to the Washington Solar Energy Industry Association Board of Directors for 2022-2023. 
     
 
-I am working on the following IRL projects:
-- [The Heron's Nest](https://www.theheronsnest.org/) - Learning
-    - I will be under the guidance of Lee [Field Director], Joselynn [Volunteer], and Elders Pamela SeaMonster & Duck
-    - Currently working with a team to design an outdoor kitchen the will end up being built by the youth
-    - Learning about medicinal plants on the land
+### I am tinkering on the following projects: 
+
+[The Heron's Nest](https://www.theheronsnest.org/) - Leading Rematriation Efforts (Weekly circa 2022)
+    - Collaborated on a design for an outdoor kitchen // will end up being built by the youth
+    - collaborated on cirriculum for land stewardship on site
+    - Interested in co-ordinating the next Indigenous People Power Project Action Camp
+    - Event Production - Grattitude gatherings // Inviting in all our partners every three months 
+    - Will start hosting Life Givers each New Moon
+    - Learning about all the plants on the land
+    - leaning into soil testing / hydroponics research
     - Tending what is present and welcoming what is to come.
-- [The Lookout Artists Quarry](https://lookoutarts.com/about/) - Learning / Teaching
-    - I will be under the mentorship of Future where I will shadow and support the land projects operations, land stewardship and contribute to soiocracy practices.
-    - I am currently up for vote to be on the Board for the 2023 season
-- [The Mission Continues](http://www.missioncontinues.org/service-platoon/Seattle/) - In service to community, volunteering since 2015
+
+[The Lookout Artists Quarry](https://lookoutarts.com/about/) - Circa 2023
+    - Productions crew 2023 - ongoing 
+    - Applying for the board next season
+      - Develop a plan to present for restoration
+
+[Seeding Community Newsletter](https://seedingcommunity.substack.com/) 📧 in partnership w/ U Productions
+- Collaborating to co-create a bi-weekly resource tending to the relational soil of our PNW community: nurturing supportive care & authentic belonging, embodied healing & spiritual development, and our collective liberation & remembrance of our interdependence with our land.
+- RESTing from mid-winter to Spring paused @ 34 newsletter sends 
+
+[River access paddle program](https://www.riveraccesspaddleprogram.org/)
+- participating in river cleanup and water testing efforts
+
+[The Mission Continues](http://www.missioncontinues.org/service-platoon/Seattle/) - In service to community, volunteering since 2015
     - I have Led three service platoons with most of my time split between seattle 1st and 2nd platoon
+
+[Art Vault](https://www.artvaultseattle.com/)
+  - Non-profit organization that provides free art materials to BIPOC creatives.
+
+[SourceCred](https://sourcecred.io/) circa 2020
+  - A tool for communities to measure and reward value creation.
     
     
-##  > Sponsor me on : [Patreon](https://www.patreon.com/AL0YSI0US/about) : 
+##  > Follow me on : [Patreon](https://www.patreon.com/AL0YSI0US/about) : 
 
